@@ -33,9 +33,9 @@ Contact with me to get the Password of Zip file on :
   
  Email : erfan4lx@gmail.com
  
-Show full video on YouTube : https://youtu.be/KQC7RHphHYw
+Show full video on YouTube : https://youtu.be/KQC7RHphHYw/
 
-Show demo video on Instagram : https://www.instagram.com/...
+Show demo video on Instagram : https://www.instagram.com/reel/CnnNtzJuQnZ/
  
 🆔My YouTube Channel : https://youtube.com/erfan4lx
 
