@@ -17,7 +17,7 @@ Features :
 
 ✅Check your accounts healthy
 
-✅Stop to advertising whenver you want by just one click
+✅Stop to advertising whenever you want by just one click
 
 ✅No limit warranty 100%
 
