@@ -1,7 +1,7 @@
 # Telegram-Group-Shilling
 Send your advertise texts to your target groups by your accounts 24/7
 
-Purchase it on my website : https://erfan4lx.com/product/Automatic-Telegram-Accounts-Creator/
+Purchase it on my website : https://erfan4lx.com/product/Telegram-Group-Shilling/
 
 Features :
 
@@ -33,7 +33,7 @@ Contact with me to get the Password of Zip file on :
   
  Email : erfan4lx@gmail.com
  
-Show full video on YouTube : https://youtu.be/...
+Show full video on YouTube : https://youtu.be/KQC7RHphHYw
 
 Show demo video on Instagram : https://www.instagram.com/...
  
